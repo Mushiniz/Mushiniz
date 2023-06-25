@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mushiniz
 - 👀 I’m interested in making friends with everyone.
-- 🌱 I’m currently learning operating campus business with my friend,and our company is called XinLun.
+- 🌱 I’m currently learning operating campus business with my friend,and our company is called 鑫伦.
 - 💞️ I’m looking to collaborate on all.
 - 📫 How to reach me.My Wechat is z2605110156 and my Telephone number is19818391055.
 
